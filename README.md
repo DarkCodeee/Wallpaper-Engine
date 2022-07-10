@@ -15,3 +15,5 @@
 
 Если есть вопросы то пишем в дс D_a_r_k#5878
 Или заходите на дс севрер https://discord.gg/zcfzYncQW2
+Моя почта mr.dark0reaper@gmail.com
+Ссылка на ролик https://youtu.be/iOEVr--tvyg
